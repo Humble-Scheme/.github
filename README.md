@@ -1,2 +1,1 @@
-# .github
-Humble Scheme
+# Humble Scheme
