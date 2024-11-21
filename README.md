@@ -6,4 +6,4 @@ A small and loving counterpoint to the concept of The Grand Scheme of Things, th
 - Belief in the power of community and connection, directly to people, with care and kindness
 - Delight in building and making things - from software to crafts to homes, we find joy in all the humble making
 
-In a landscape driven by hustle and productivity and the desire to be the next Unicorn, we instead commit ourselves to the humble work of putting pebbles on piles...the only way we know to build mountains. 
+In a landscape driven by hustle and productivity and the desire to be the next Unicorn, we instead commit ourselves to the humble work of putting pebbles on piles...the only humane and joyful way we know to build mountains. 
